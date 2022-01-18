@@ -13,4 +13,4 @@ Here are some ideas to get you started:
 - 📫 How to reach me: ... I'll send u a loaction come there....😅😅😅 @:aashrith654321@gmail.com
 - ⚡ Fun fact: ......Im Mr.Perfect.....😁😁😜😜
 
-### BYE Friends...👋👋
+### Thank you.....
